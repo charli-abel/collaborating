@@ -21,6 +21,7 @@ In a small pot, add the Sichuan peppercorns, cinnamon stick, star anise, and oil
 Add the crushed red pepper flakes and allow them to steep in the hot oil. It should start smelling fragrant, almost like popcorn. Allow the oil to cool. This makes more chili oil than you’ll need, but you’ll be glad to have it on hand for use in other dishes. Store in a glass jar and keep refrigerated.
 
 
+# CHARLI
 ## water, protein powder = protein shake
 
  testbranch
